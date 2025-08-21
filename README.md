@@ -29,7 +29,7 @@ The work consists of two main parts:
 
 - 🎬 **Trailer:**
   [Watch Video](https://www.youtube.com/watch?v=5L8intrDcM0)
-  
+
 - 🎬 **Modified Video:**  
   [Watch Video](https://javerianacaliedu-my.sharepoint.com/:v:/g/personal/kevinyavari123_javerianacali_edu_co/Ecv3JKw11rhPuFgHl4s-73cBwBsVtywkyV0nlfMpHM7Pug?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0NvcHkifX0&e=o0C6XB)  
 
