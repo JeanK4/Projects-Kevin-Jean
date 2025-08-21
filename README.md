@@ -28,7 +28,7 @@ The work consists of two main parts:
   [Download Project](https://javerianacaliedu-my.sharepoint.com/:u:/g/personal/jkbuitragoo_javerianacali_edu_co/ERYnt4dCJVNJgBYu7OIgNDABeNDhfhCOZKPmYZM2-ZY-kw?e=ZaLwji)  
 
 - 🎬 **Modified Video:**  
-  [Watch Video](https://javerianacaliedu-my.sharepoint.com/personal/kevinyavari123_javerianacali_edu_co/_layouts/15/stream.aspx?id=%2Fpersonal%2Fkevinyavari123%5Fjaverianacali%5Fedu%5Fco%2FDocuments%2Fsistemas%20de%20interaccion%2Fproject1%2Emp4&nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0NvcHkifX0&ga=1&referrer=StreamWebApp%2EWeb&referrerScenario=AddressBarCopied%2Eview%2E8cf98761%2D984f%2D4357%2Dbe45%2D9f6d9d7d3bd7)  
+  [Watch Video](https://javerianacaliedu-my.sharepoint.com/:v:/g/personal/kevinyavari123_javerianacali_edu_co/ERXabHR24FpOoENcoX7ldMQBHXena0fNN6LTtY2xPQFjbQ?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0NvcHkifX0&e=ivUH7P)  
 
 ---
 
